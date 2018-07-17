@@ -1,0 +1,2 @@
+# idolsih7_in_nightemarket_32
+idolish7小遊戲製作
